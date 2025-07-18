@@ -1,7 +1,4 @@
 - 👋 Hi, I’m @iktisha
-- 👀 I’m interested in UI/UX 
-- 🌱 I’m currently learning graphics designing
-- 💞️ I’m looking to collaborate on graphic designing projects
 - 📫 How to reach me email iktisha013@gmail.com
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: pursuing btech in CSE(AI)
